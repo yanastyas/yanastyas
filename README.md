@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yanastyas.
+- 👋 Hi, I’m Anastasiya.
 - 🌱 I’m currently learning java.
 - 💞️ I’m need to help.
 - 📫 How to reach me yanastyas28@mail.ru
